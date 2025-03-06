@@ -1,4 +1,4 @@
-## Hi Diskordia here :) 😄👋
+## Hi Diskordia here :) 😄👋🌱
 
 <!--
 **Diskordia97/Diskordia97** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
